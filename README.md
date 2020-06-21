@@ -1,2 +1,0 @@
-# talentoendigital
-Talento en Digital
